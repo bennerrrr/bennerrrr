@@ -8,7 +8,7 @@
   > opensource projects with a friendly community behind it.
 - 📫 How to reach me
   >Email: bkstevenson2@gmail.com
-  >LinkedIn: [Link](www.linkedin.com/in/ben-stevenson-0016882b8)
+  >LinkedIn: [Link](https://www.linkedin.com/in/ben-stevenson-0016882b8)
 
 
 <!---
